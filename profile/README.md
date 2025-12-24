@@ -40,7 +40,7 @@ Personal Connection: Signed vinyls and CDs make fans feel closer to Moroney.
 
 Fashion Appeal: Her merch doubles as stylish streetwear, not just concert gear.
 
-Collectibility: Limited editions and box sets are prized by fans.
+Collectibility: Limited editions and box sets are prized by fans. More: https://lariour.com/megan-moroney-merch/
 
 ⚠️ Things to Keep in Mind
 Availability: Some items sell out quickly, especially signed editions.
